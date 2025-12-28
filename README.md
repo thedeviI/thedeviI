@@ -7,5 +7,7 @@
 </p>
 <a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　　<a href="https://rentry.co/deadpool" rel="nofollow">rentry.co/deadpool&ZeroWidthSpace;</a>　　　<br>　
 </p>
-
-
+  
+<p align="center">
+<img width="20%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/MyLoves"">
+</p>
