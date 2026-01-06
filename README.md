@@ -6,6 +6,6 @@
 
 <img width="42%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/myotp.png"> <img width="47%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Lovers"><br>
 
-<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　<a href="https://rentry.co/dd" rel="nofollow">rentry.co/dd&ZeroWidthSpace;</a>　
+<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　<a href="https://rentry.co/stephen" rel="nofollow">rentry.co/stephen&ZeroWidthSpace;</a>　
 
 <img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/RarePair/MM">
